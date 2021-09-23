@@ -1,4 +1,4 @@
-- 👋 Hi, I’m MR.DEVELOPER
+- 👋 Hi, I’m [@DEVELOPER_XD](https://t.me/DEVELOPER_XD)
 - 👀 I’m interested in PYTHON 
 - 🌱 I’m currently learning PYTHON LANGUGE
 - 💞️ I’m looking to collaborate on THE BIGGESTVAND UNIQUE PROJECT OF TELEGRAM
